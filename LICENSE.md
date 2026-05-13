@@ -1,4 +1,4 @@
-
+Get ahead in jujutsu shenanigans with jujutsu shenanigans Scripts instant, featuring god mode and custom skins. Download now to dominate every match with ease and confidence,
 
 
 
